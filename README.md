@@ -1,0 +1,2 @@
+# video
+bitcoin is scam
